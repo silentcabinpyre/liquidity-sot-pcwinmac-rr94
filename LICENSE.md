@@ -1,4 +1,4 @@
-# 
+# Personnalisé liquidity sniper bot modèles pour Mac OS | Nouveau liquidity sniper bot modèles pour PC Windows. Avec gestion de portefeuille et ordres limite — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
